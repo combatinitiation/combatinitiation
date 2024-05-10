@@ -1,5 +1,3 @@
-> [!NOTE]
-> building
 <img src="https://static.miraheze.org/combatinitiationwiki/6/68/GLASSHOUSESACT3.png" alt="glass houses" style="width:1200px;height:300px">
 
 <p align="center">isla ⊹ 19 ⊹ <b>one/one's</b> or <b>she/her</b> idc that much</p>
