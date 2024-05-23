@@ -5,7 +5,9 @@
 <p align="center">im too old to have an extensive dni but i definitely wont accept friend requests if youre younger than 16</p>
 <hr class="dashed">
 <p>⊹ <b>pony townie of roughly 7 years</b>. usually seen where the phighting fans gather on the safe server. i might be chronically online but i cant yap to save my life, nor am i willing to engage in discourse. ive already seen enough from when i wasnt even old enough to be on the 18+ server and there used to be drama at the spawn on a daily basis. i also wont accept any private chat requests unless i know you well enough</p>
-<p>⊹ <b>permanently stuck in roblox superhell</b>. mainly <a href="https://www.roblox.com/games/13559635034/Combat-Initiation">combat initiation</a> atm but it isnt the only roblox game i have enjoyed ever <s>who do you think was known as <a href="https://"https://github.com/regretevator">@regretevator</a> this whole time</s>. im also in the osc, but not as strongly at this point (mainly cool with itft, animatic battle, and one)</p>
+<p>⊹ <b>doomed to be a fan of roblox and object shows forever</b>. <i>italic</i> = main, plain = constantly haunting me but not a superfan anymore
+<br><b>roblox</b>: <i>combat initiation</i>, regretevator, evade, flicker, gasa4, the ideal game, <s>adn</s>
+<br><b>osc</b>: <i>animatic battle</i>, <i>itft</i>, <i>"epicverse" (<a href="https://www.youtube.com/playlist?list=PLkmaIStjG-JtBu_WdCaQVUBB1YNsPgxTd">yag</a>/<a href="https://www.youtube.com/playlist?list=PLkmaIStjG-Ju-7zNskToKKg-7G5dg1uE1">uc</a>/<a href="https://mspfa.com/log/?s=41530">taot</a>)</i>, bfdi, tnm, ppt2, one, lots
 <p>⊹ <b>this readme is still a work in progress</b>. *drops mic until further notice*</p>
 <hr class="dashed">
 <p align="center"><b>links</b></p>
