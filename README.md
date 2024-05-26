@@ -1,8 +1,8 @@
 <p align="center"><img src="https://raw.githubusercontent.com/glass-houses/glass-houses/main/glass%20houses.png" alt="glass houses""></p>
 <p align="center"><i>Bud, I can always offer some good old grace time for yall; just 30 more seconds of nothing!</i></p>
 <hr class="dashed">
-<p align="center">im <b>19</b> please be normal ⊹ <b>one/one's</b> or <b>she/her</b> idc</p>
-<p align="center">no extensive dni but i definitely wont accept friend requests if youre younger than 16</p>
+<p align="center"> <b>emmie</b> (aka <b>isla</b> or <b>ethel</b>) ⊹ <b>19</b> (b. 2005) ⊹ <b>idrc how others refer to me</b> i personally treat it like a game of battleship</p>
+<p align="center"> <i>no extensive dni but i wont accept friend requests if you are younger than 16</i>
 <hr class="dashed">
 <p>⊹ <b>pony townie of roughly 7 years</b>. usually seen where the phighting fans gather on the safe server. i might be chronically online but i cant yap to save my life, nor am i willing to engage in discourse. ive already seen enough from when i wasnt even old enough to be on the 18+ server and there used to be drama at the spawn on a daily basis. i also wont accept any private chat requests unless i know you well enough</p>
 <p>⊹ <b>doomed to be a fan of roblox and object shows forever</b>. <i>italic</i> = main, plain = constantly haunting me but not a superfan anymore
