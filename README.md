@@ -9,6 +9,3 @@
 <br><b>roblox</b>: <i>combat initiation</i>, regretevator, evade, flicker, gasa4, <s>adn</s>
 <br><b>osc</b>: <i>animatic battle</i>, <i>itft</i>, <i>"fuzzyverse" (<a href="https://www.youtube.com/playlist?list=PLkmaIStjG-JtBu_WdCaQVUBB1YNsPgxTd">yag</a>/<a href="https://www.youtube.com/playlist?list=PLkmaIStjG-Ju-7zNskToKKg-7G5dg1uE1">uc</a>/<a href="https://mspfa.com/log/?s=41530">taot</a>)</i>, bfdi, tnm, ppt2, one, lots
 <p>⊹ <b>this readme is still a work in progress</b>. *drops mic until further notice*</p>
-<hr class="dashed">
-<p align="center"><b>links</b></p>
-<p align="center"><a href="https://mp3y.atabook.org/">atabook</a> ⊹ <a href="https://qooh.me/malpractice">qooh.me</a> ⊹ <a href="https://www.tumblr.com/palipunk/698216767541133313/">palestine masterlist</a></p>
