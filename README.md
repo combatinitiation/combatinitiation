@@ -11,4 +11,4 @@
 <p>⊹ <b>this readme is still a work in progress</b>. *drops mic until further notice*</p>
 <hr class="dashed">
 <p align="center"><b>links</b></p>
-<p align="center"><a href="https://plesen.123guestbook.com/">guestbook</a> (until july 1) ⊹ <a href="https://mp3y.atabook.org/">atabook</a> ⊹ <a href="https://qooh.me/malpractice">qooh.me</a> ⊹ <a href="https://www.tumblr.com/palipunk/698216767541133313/">palestine masterlist</a></p>
+<p align="center"><a href="https://mp3y.atabook.org/">atabook</a> ⊹ <a href="https://qooh.me/malpractice">qooh.me</a> ⊹ <a href="https://www.tumblr.com/palipunk/698216767541133313/">palestine masterlist</a></p>
