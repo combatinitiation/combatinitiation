@@ -2,7 +2,7 @@
 <p align="center"><i>Bud, I can always offer some good old grace time for yall; just 30 more seconds of nothing!</i></p>
 <hr class="dashed">
 <p align="center"> <b>emmie</b> ⊹ 19 (b. 2005) ⊹ xe/xem <b>idrc how others refer to me</b> i personally treat it like a game of battleship</p>
-<p align="center"> <i>no extensive dni but i wont accept friend requests if you are younger than 16</i>
+<p align="center"> <i>no extensive dni but i wont accept friend requests if you are younger than 16 or, ya know, a genuine freak (please refer to the sad ant image)</i>
 <hr class="dashed">
 <p>⊹ <b>pony townie of roughly 7 years</b>. usually seen where the phighting fans gather on the safe server. i might be chronically online but i cant yap to save my life, nor am i willing to engage in discourse. ive already seen enough from when i wasnt even old enough to be on the 18+ server and there used to be drama at the spawn on a daily basis. i also wont accept any private chat requests unless i know you well enough</p>
 <p>⊹ <b>doomed to be a fan of roblox and object shows forever</b>. <i>italic</i> = main, plain = constantly haunting me but not a superfan anymore
