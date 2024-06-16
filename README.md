@@ -4,7 +4,7 @@
 <p align="center"> <b>emmie</b> or <b>burnet</b> ⊹ 19 (b. 2005) ⊹ <b>xe/he</b> but idm anything else</p>
 <p align="center"> <i>no extensive dni but i wont accept friend requests if you are younger than 16 or, ya know, a genuine freak (sad ant reaction image)</i>
 <hr class="dashed">
-<p>⊹ <b>pony townie of roughly 7 years</b>. usually seen where the phighting fans gather on the safe server. i might be chronically online but i cant yap to save my life, nor am i willing to engage in discourse. i also wont accept any private chat requests unless i know you well enough</p>
+<p>⊹ <b>pony townie of roughly 7 years</b>. usually seen where the phighting fans gather on the safe server. i might be chronically online but im not willing to engage in discourse. i also wont accept any private chat requests (party or whispers) unless i know you well enough</p>
 <p>⊹ <b>doomed to be a fan of roblox and object shows forever</b>. <i>italic</i> = main, plain = dormant (i know about it i guess?)
 <br><b>roblox</b>: <i><a href="https://www.roblox.com/games/15654981113/Death-Penalty">death penalty</a></i>, <i>combat initiation</i>, regretevator, evade, flicker, gasa4, <s>adn</s>
 <br><b>osc</b>: <i>animatic battle</i>, <i>itft</i>, <i>"fuzzyverse" (<a href="https://www.youtube.com/playlist?list=PLkmaIStjG-JtBu_WdCaQVUBB1YNsPgxTd">yag</a>/<a href="https://www.youtube.com/playlist?list=PLkmaIStjG-Ju-7zNskToKKg-7G5dg1uE1">uc</a>/<a href="https://mspfa.com/log/?s=41530">taot</a>)</i>, bfdi, tnm, ppt2, one, lots
