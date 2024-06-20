@@ -6,6 +6,6 @@
 <hr class="dashed">
 <p>⊹ <b>pony townie of roughly 7 years</b>. usually seen where the phighting fans gather on the safe server. i might be chronically online but im not willing to engage in discourse. i also wont accept any private chat requests (party or whispers) unless i know you well enough</p>
 <p>⊹ <b>doomed to be a fan of roblox and object shows forever</b>. <i>italic</i> = main, plain = normally dormant but i know about it
-<br><b>roblox</b>: <i><a href="https://www.roblox.com/games/15654981113/Death-Penalty">death penalty</a></i>, <i>combat initiation</i>, regretevator, evade, flicker, gasa4, <s>adn</s>
 <br><b>osc</b>: <i>animatic battle</i>, <i>itft</i>, <i>"fuzzyverse" (<a href="https://www.youtube.com/playlist?list=PLkmaIStjG-JtBu_WdCaQVUBB1YNsPgxTd">yag</a>/<a href="https://www.youtube.com/playlist?list=PLkmaIStjG-Ju-7zNskToKKg-7G5dg1uE1">uc</a>/<a href="https://mspfa.com/log/?s=41530">taot</a>)</i>, bfdi, tnm, ppt2, one, lots
+<br><b>roblox</b>: death penalty, combat initiation, regretevator, evade, flicker, gasa4, <s>adn</s>
 <p>⊹ <b>this readme is still a work in progress</b>. that being said i think this is good enough for now</p>
