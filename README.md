@@ -1,7 +1,7 @@
 <p align="center"><img src="https://raw.githubusercontent.com/glass-houses/glass-houses/main/glass%20houses.png" alt="glass houses""></p>
 <p align="center"><i>Bud, I can always offer some good old grace time for yall; just 30 more seconds of nothing!</i></p>
 <hr class="dashed">
-<p align="center"><s>im in my name hoarding era rn</s> ⊹ 19 (b. 2005) ⊹ <b>xe/xem</b> and <b>he/him</b> and whatever else fits best within the context</p>
+<p align="center"><s>im in my name hoarding era rn</s> ⊹ 19 (b. 2005) ⊹ <b>xe/xem</b> and <b>he/him</b> and whatever else fits best depending on context</p>
 <p align="center"> <i>no extensive dni but i wont accept friend requests if you are younger than 16 or, ya know, a genuine freak (sad ant reaction image)</i>
 <hr class="dashed">
 <p>⊹ <b>pony townie of roughly 7 years</b>. usually seen where the phighting fans gather on the safe server. i might be chronically online but im not willing to engage in discourse. i also wont accept any private chat requests (party or whispers) unless i know you well enough</p>
